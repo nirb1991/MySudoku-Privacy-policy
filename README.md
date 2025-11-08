@@ -1,0 +1,1 @@
+MySudoku-privacy-policy
